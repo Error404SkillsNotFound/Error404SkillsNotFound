@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Error404SkillsNotFound
+- I'm a new coder who knows nothing, and I would love help.
